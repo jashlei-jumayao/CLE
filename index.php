@@ -174,9 +174,9 @@ in abortion rate.
 <p>Loving God, I come to you in need that please extend your arms those person who was being threatened to do abortion. Save them from the strong power of abortion that they may be happy with the babies with or without the presence of the father and with or without the support from their parents. May they’ll be responsible for their own doings and keep on thinking about the fruit of what they did. May the father take responsible of what they did because growing without a father is hard.</p>
 <h2 id="insights"> Insights</h2>
 <p>Jashlei Jumayo</p>
-<p>-did the coding for the project</p>
+<p>-Did the coding for the project</p>
 <p>Roxanne Marie Ternate</p>
-<p>-did the Objectives of the projects</p>
+<p>-Did the Objectives of the projects</p>
 <p>Vanessa Tauchman</p>
 <p>-Gave the solutions for the problem</p>
 <p>Gabriel Magan</p>
