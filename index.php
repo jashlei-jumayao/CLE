@@ -178,13 +178,13 @@ in abortion rate.
 <p>Roxanne Marie Ternate</p>
 <p>-did the Objectives of the projects</p>
 <p>Vanessa Tauchman</p>
-<p>Gave the solutions for the problem</p>
+<p>-Gave the solutions for the problem</p>
 <p>Gabriel Magan</p>
-<p>Gave the significance of the project</p>
+<p>-Gave the significance of the project</p>
 <p>Annabel Beronio</p>
-<p>Made the prayer for the project</p>
+<p>-Made the prayer for the project</p>
 <p>Resha Lei Salazar</p>
-<p>Did not contribute</p>
+<p>-Did not contribute</p>
 			</div>
 			</div>
 		</div>
