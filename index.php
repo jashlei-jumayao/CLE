@@ -25,6 +25,128 @@
 			<div class="wrapper">
 				<h2 id="abortion">Abortion</h2>
 				<img src="Scaffold3.jpg">
+								<p> The relationship with their lover
+may be severely damaged and
+quite possibly destroyed
+because of the regret they feel.
+Their friendship with other
+people will also be damaged
+because of the choice they
+made. But most importantly
+their relationship with their
+parents will be destroyed.
+That single decision
+will severe relationships
+with the people will love
+and quite possibly destroy
+their entire lives.
+</p>
+<h2>
+	What causes abortion?
+</h2>
+<p>Abortion is a problem that
+has been increasing over the
+past few years recently and
+is caused by various things.
+The most common cause is
+financial problem. People
+abort because they lack the
+money needed to raise
+children. Another cause is
+very common and that is
+teenage pregnancy.
+Teenagers who get pregnant
+often get abortions because
+they cannot afford to take
+care of a child or they are
+too young to take care of a
+child and are unable to take
+care of them.</p>
+
+<p>Some people get abortions
+but because of the
+financial issues but rather
+something else like a disease
+that the mother has and is
+very weak when carrying the
+child. In some causes they
+would rather abort the child
+rather than continue on
+because there is a chance
+that the mother will also die.</p>
+<h2>What are the effects of abortion?</h2>
+<p>Abortion can not only damage
+the reputation of the persons
+doing it but also damages the
+society around them and how
+they percieve them.
+It damages the potential future
+of the economy if they abort
+someone because one day
+that baby that was born
+could contribute to our
+society but can't because they
+had been aborted. How
+the people around the ones who
+aborted see them get affected
+by abortion and their reputation
+can be tarnished.</p>
+<p>Abortion can affect the churches
+as well because the church
+reject any form of abortion as it is
+an act of murder and a sin.
+It not only tarnishes the church
+but your christianity as well.
+Your status as a christian can
+be damaged because
+of what you had done. It is
+essentially severing the link of
+your loyalty to the church
+because you had committed
+a grave sin.</p>
+<p>Abortion will greatly affect your
+relationship with your family,
+especially if you made that
+decision on your own without
+consulting them. Although not
+everyone may have the luxury
+of having a happy family, you
+still need to consult their opinions.
+Deciding on your own, could
+sometimes lead to the
+disappointment of your family
+towards your decision, and will
+only worsen your relationship
+with them and their trust and
+view of you. Since abortion is
+mostly frowned upon, if you are
+still a student going to school and
+have already went through abortion,
+it will not only affect how your peers
+will look at you, but also your studies
+.Some may not be so willing to be associate
+with you anymore, not sure how they
+should react on your decision.</p>
+<p>This could affect how other people
+view your family, spreading rumors
+on how you were not raised well or
+desciplined enough, that's why
+you had go to abortion in the
+first place. It could also cause
+your parents to have a possibility
+of losing their jobs, since some
+work place are more conservative
+than the rest and would try to avoid
+as much issues as possible. Abortion
+could also affect your school,
+worsening their reputation
+towards the general public since a
+student who had to go through
+abortion is far from common.
+This could also affect their possible
+applicants from enrolling in their school,
+loosing the credibility
+of their values.</p>
 				<h2 id="significance"> Significance of the project</h2>
 				<p>We made this project in order to for us to respect the dignity of life. Because the church believes that all human beings are imagebearers of God, it affirms the unique value of all human life. Mindful of the sixth commandment—"You shall not commit murder". Abortion is the same as commiting murder because we Christians believe that human life starts at conception. This project aims for people to have a better understanding of abortion and its effects. To help and guide the people who are planning on doing abortion. This also helps  people to become more careful because they know consequences of doing it.We hope to reduce the number of people who are going to commit abortion with this project.</p>
 				<h2>5 solutions for abortion</h2>
