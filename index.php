@@ -174,31 +174,17 @@ in abortion rate.
 <p>Loving God, I come to you in need that please extend your arms those person who was being threatened to do abortion. Save them from the strong power of abortion that they may be happy with the babies with or without the presence of the father and with or without the support from their parents. May they’ll be responsible for their own doings and keep on thinking about the fruit of what they did. May the father take responsible of what they did because growing without a father is hard.</p>
 <h2 id="insights"> Insights</h2>
 <p>Jashlei Jumayo</p>
-<p>Is an average 14yr old boy that likes video games</p>
 <p>-did the coding for the project</p>
 <p>Roxanne Marie Ternate</p>
-<p> is an average high school student, who has lived in Bacolod City practically all of her life</p>
 <p>-did the Objectives of the projects</p>
 <p>Vanessa Tauchman</p>
-<p></p>
 <p>Gave the solutions for the problem</p>
 <p>Gabriel Magan</p>
-<p></p>
 <p>Gave the significance of the project</p>
 <p>Annabel Beronio</p>
-<p></p>
 <p>Made the prayer for the project</p>
 <p>Resha Lei Salazar</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
+<p>Did not contribute</p>
 			</div>
 			</div>
 		</div>
@@ -289,20 +275,3 @@ nav a {
 </style>
 </body>
 </html>
-
-
-insights
-significance 
-5 solutions with images
-
-5 solutions for abortion -giving proper guidance to your kids, especially for teenagers, Taking responsibility of your actions, understand the purpose of making love and respect that it is just for married couples, think before you act, respect life
-3 objectives
-Objectives:
-• To educate people about what is usually the cause of abortion.
-• To raise awareness to avoid future possibilities of a sudden rise in abortion rate.
-• To comfort those who had to go through abortion with no other choice.
-
-The beneficiaries will be young adults who have yet to be aware of the consequences of their actions. Being able to hear what they will have to go through will make them more cautious with their actions. Those who have went through the pain of abortion could also benefit from this, they can provide their experience and advice, having been gone through it already. They can talk about what they felt, possibly being able to comfort one another.
-
-
-prayer
